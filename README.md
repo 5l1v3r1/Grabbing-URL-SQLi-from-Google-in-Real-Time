@@ -18,7 +18,10 @@ Price 300$ Source code  🌸  Feature :
 
 7.Grab Different Result i recommend try 1 vs 1dork scrape to end page (special)
 
-DM for buy : @capitoskamal  Accept BTC, (30$) 
+DM for buy : @capitoskamal 
+
+
+# _Accept BTC, (30$) 
 
 
 $ _Illustration video on my channel : https://youtu.be/b4bYwDMPar4
